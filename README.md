@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **wael.seddik@ensi-uma.tn**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-n5mthkHmnkrKYuGpabQ948d5AjMk3Pv/view?usp=sharing](https://drive.google.com/file/d/1-n5mthkHmnkrKYuGpabQ948d5AjMk3Pv/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1-n5mthkHmnkrKYuGpabQ948d5AjMk3Pv/view?usp=sharing](https://drive.google.com/file/d/1b8CTEonOeSB6YV7O9_tUppJFuOVMPrhs/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
