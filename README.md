@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=waelseddik&label=Profile%20views&color=0e75b6&style=flat" alt="waelseddik" /> </p>
 
-- 💬 Ask me about **react , python**
+- 💬 Ask me about **machine learning , data science**
 
 - 📫 How to reach me **wael.seddik@ensi-uma.tn**
 
